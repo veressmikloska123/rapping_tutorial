@@ -49,4 +49,10 @@ end!
 4. Make a genius video
 5. Be famous
 
+## City rapping
+0. Rap something about the city you live in (like yo yo yo i live in bekes of hungary, it is like savanna in the asus of ur nanny)
+1. Say main line of chorus (ooooo ooooo ooooo my-city-is-the best, ooo ooo ooo ooo hungaryisthebest)
+2. Now do more rapping like money huf or european membership
+3. Or something about the welfare crisis if it exists there
 
+Both can be freestyle and premade

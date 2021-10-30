@@ -1,6 +1,7 @@
-# rapping_tutorial
-Rapping (formerly urban-octo-happiness)
-Everything starts from 0 as C# arrays start from 0
+# Rapping tutorials
+## By Veress Miklos of Bekes
+
+__Hint__: Everything starts from 0 as C# arrays start from 0
 
 # Freestyle rapping
 

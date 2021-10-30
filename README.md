@@ -36,3 +36,17 @@ This is the reality of the hungarian welfare crisis in a writeup,
 if you aren't in it you don't know what we need to give up
 this is the end of a civilized era,
 we can't even be trusted to mop up the floors in a shopping cera
+There is no place for sadness in hungary,
+if they catch you, you will surely want to be
+euthanasiated,even before evil
+i will surely catch the covid even if the chances are zero
+orban is a hero, not like ben shapiro
+end!
+
+1. Adopt it as you see fit
+2. Rap it to some gypsy-style background music
+3. Make a lyrics music video
+4. Make a genius video
+5. Be famous
+
+
